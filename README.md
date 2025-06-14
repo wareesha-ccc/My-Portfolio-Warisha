@@ -1,2 +1,2 @@
 # My-Portfolio-Warisha
-My ortfolio
+My Prtfolio
